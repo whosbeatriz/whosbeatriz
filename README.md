@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Bea!
+- ⚡ Fun fact: I don't have a good pc to make codes 🫠
